@@ -1,0 +1,1 @@
+# TQTU---Quantum-Signature---LIGO--Ring-Down-Anomaly-A-General-Relativity-Free-Explanation-of-GW150914
